@@ -6,4 +6,3 @@ Specializing in Mathematical and Software Support for Mobile Devices, combining 
 
 Eager to collaborate and connect with fellow enthusiasts in the fascinating world of Java development.
 
-📫 How to reach me vorobushkuuu@gmail.com
